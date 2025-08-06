@@ -28,6 +28,7 @@
 
 # 2\. Quy trình đám tang chuẩn theo phong tục Việt Nam
 
+Xem thêm: https://maitanggiangtho.vn/quy-trinh-dam-tang/
 # Quy trình tang lễ có thể khác nhau giữa các vùng miền, nhưng về cơ bản sẽ gồm các bước chính sau:
 
 # 
